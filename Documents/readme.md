@@ -1,0 +1,1 @@
+TO access files without any hassle, please readme of every folder . It would be very easy to access the file and the proposed model.
